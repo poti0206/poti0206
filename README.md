@@ -1,4 +1,4 @@
-# poti0206
+# Hi, I'm poti.
 ## Stats
 
 ## Languages
